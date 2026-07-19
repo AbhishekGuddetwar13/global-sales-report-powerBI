@@ -123,6 +123,6 @@ Aspiring Data Analyst
 
 💻 GitHub: https://github.com/AbhishekGuddetwar13
 
-🔗 LinkedIn: Your LinkedIn Profile
+🔗 LinkedIn:https://www.linkedin.com/in/abhishekguddetwar/
 
 ---
